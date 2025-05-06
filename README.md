@@ -1,0 +1,1 @@
+# vep-sehifenin-yaradilmasi-ve-funksiyalari-haqqinda-sehife-yaradin
